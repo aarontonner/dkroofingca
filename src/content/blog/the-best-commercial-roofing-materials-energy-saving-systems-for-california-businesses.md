@@ -179,3 +179,13 @@ The right roofing material or energy-saving upgrade can reduce costs, lower envi
 Whether you're managing a logistics facility in Commerce, a creative space in Culver City, or a medical office in Santa Clarita, DK Roofing delivers tailored, top-tier solutions backed by local expertise and industry-leading warranties.
 
 **Need help selecting the right system?** Contact DK Roofing for a free commercial roof consultation. We'll inspect your property, assess your goals, and recommend the perfect high-performance solution for your California business.
+* [Redlands, CA](/redlands-ca)
+* [Highland, CA](/highland-ca)
+* [Yucaipa, CA](/yucaipa-ca)
+* [Banning, CA](/banning-ca)
+* [Perris, CA](/perris-ca)
+* [Commerce, CA](/commerce-ca)
+* [Rancho Cucamonga, CA](/rancho-cucamonga-ca)
+* [Ontario, CA](/ontario-ca)
+* [El Monte, CA](/el-monte-ca)
+* [Garden Grove, CA](/garden-grove-ca)
